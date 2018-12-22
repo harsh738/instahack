@@ -1,6 +1,7 @@
-# instahack
-[![Donate](https://img.shields.io/badge/Donate-PayPal-green.svg)](https://www.paypal.com/cgi-bin/webscr?cmd=_s-xclick&hosted_button_id=ARVABYAUX3NPC)
+In this for hack a insta by bruteforce method. give me a credit like SUBSCRIBE "Tech Dossier" youtube channel and its free.
+please share your friends. Heartly thank you.
 
-###### [*] Hack instagram accounts use bruteforce
-###### [*] for more proxy - go to https://www.torvpn.com/en/proxy-list
-![alt tag](https://raw.githubusercontent.com/avramit/instahack/master/screenshot.jpg)
+Contact us.
+FACEBOOK - https://m.facebook.com/TechDossier/
+TWITTER - https://mobile.twitter.com/TechDossier
+YOUTUBE - Tech Dossier
